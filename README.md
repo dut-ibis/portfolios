@@ -1,1 +1,3 @@
 # portfolios
+
+OH MY GOD ITS EVERYWHETER
